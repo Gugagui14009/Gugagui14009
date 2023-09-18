@@ -2,5 +2,5 @@
 - 📫 Como entrar em contato comigo ...(44)997215065
 MESSI E MELHOR QUE CR7😈🙈
 𝑽𝒊𝒗𝒆𝒏𝒅𝒐 𝒆 𝒂𝒑𝒓𝒆𝒏𝒅𝒆𝒏𝒐🍃
-![](https://i.gifer.com/origin/b9/b980a1b5076ff4d68ee718f5b55f8d2d_w200.gif)
+![](https://img.ibxk.com.br/2018/11/21/elon-musk-21155134424155.gif)
 
